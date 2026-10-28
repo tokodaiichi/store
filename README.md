@@ -1,1 +1,1 @@
-# store
+Toko Daiichi
